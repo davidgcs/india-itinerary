@@ -1,9 +1,9 @@
 
-✈️ Llegada: 27 agosto a las 9:00
-✈️ Delhi - Kathmandu: 3 Septiembre
-✈️ Kathmandu - Pokhara - Kathmandu: 5-6 Septiembre 180€/p
-✈️ Kathmandu - Delhi: 7 Septiembre
-✈️ Salida a España: 8 septiembre
+✈️ Llegada: 27 agosto a las 9:00  
+✈️ Delhi - Kathmandu: 3 Septiembre  
+✈️ Kathmandu - Pokhara - Kathmandu: 5-6 Septiembre 180€/p  
+✈️ Kathmandu - Delhi: 7 Septiembre  
+✈️ Salida a España: 8 septiembre  
 
 # 📍✈️ Jueves 27 agosto – Delhi (Old Delhi)
 	Cómo moverse: Airport Express + metro + caminar
