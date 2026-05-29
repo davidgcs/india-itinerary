@@ -23,7 +23,7 @@
 	Tumba de Humayun
 	Lodi Gardens
 	3 noches en nueva delhi - Jyoti Mahal - 155€
-[Hotel Nueva Delhi Airbnb](https://www.booking.com/Share-fAzxWA](https://www.airbnb.es/rooms/30941587?source_impression_id=p3_1780097666_P3Njd4BwNSjcN03w)
+[Hotel Nueva Delhi Airbnb](https://www.airbnb.es/rooms/30941587?source_impression_id=p3_1780097666_P3Njd4BwNSjcN03w)
 ![Hotel Nueva Delhi Airbnb](https://a0.muscache.com/im/pictures/miso/Hosting-30941587/original/76c04767-e32a-4491-9711-fa5960e84977.jpeg?im_w=1200)
 # 📍Domingo 30 agosto – Agra
 	Tren + caminar
