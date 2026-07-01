@@ -74,8 +74,8 @@
     Dormir cerca del aeropuerto
     1 noche en hotel de aeropuerto - 21€
 
-[Hotel Bellamaunt](https://www.booking.com/Share-QR1mRkr)
-![hotel Bellamaunt](https://cf.bstatic.com/xdata/images/hotel/max1024x768/858785709.jpg?k=22614e0c7357db8596e5156416ec6aedc25896f12bd3551e2894e6db3ef260ef&o=)
+[Hotel Grand Shalimar by JMD Group](https://www.booking.com/Share-LHK3aD)
+![Hotel Grand Shalimar by JMD Group](https://cf.bstatic.com/xdata/images/hotel/max1024x768/856966380.jpg?k=f63aec31a0e680047083da99fac563dc8c2a85f6b295942dea26539ff37bc130&o=)
 
 ## 📍✈️ Jueves 3 septiembre – Vuelo a Kathmandu
 
@@ -137,8 +137,8 @@
     Preparar maletas
     noche en hotel cerca aeropuerto delhi - 21€
 
-[Hotel Bellamaunt](https://www.booking.com/Share-QR1mRkr)
-![hotel Bellamaunt](https://cf.bstatic.com/xdata/images/hotel/max1024x768/858785709.jpg?k=22614e0c7357db8596e5156416ec6aedc25896f12bd3551e2894e6db3ef260ef&o=)
+[Hotel Grand Shalimar by JMD Group](https://www.booking.com/Share-LHK3aD)
+![Hotel Grand Shalimar by JMD Group](https://cf.bstatic.com/xdata/images/hotel/max1024x768/856966380.jpg?k=f63aec31a0e680047083da99fac563dc8c2a85f6b295942dea26539ff37bc130&o=)
 
 ## 📍✈️ Martes 8 septiembre – Vuelta a España
 
