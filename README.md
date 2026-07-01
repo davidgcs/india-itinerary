@@ -31,8 +31,8 @@
     Lodi Gardens
     3 noches en nueva delhi - Jyoti Mahal - 155€
 
-[Hotel Nueva Delhi 1](https://www.booking.com/Share-fAzxWA)
-![Hotel nueva delhi](https://cf.bstatic.com/xdata/images/hotel/max1024x768/775810443.jpg?k=2d5b694887434ff90b084fd29816d9828360d3e5eaf3494202dbec82c4a93eac&o=)
+[Airbnb Nueva Delhi 1](https://www.airbnb.es/trips/v1/reservation-details/ro/RESERVATION2_CHECKIN/HMBYN4YMW9)
+![Airbnb nueva delhi](https://a0.muscache.com/im/pictures/miso/Hosting-30941587/original/9aa6b859-e968-4341-bdf9-7749d0c0501b.jpeg)
 
 ## 📍Domingo 30 agosto – Agra
 
