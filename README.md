@@ -99,9 +99,6 @@
     Kathesimbhu Stupa o Garden of Dreams, opcional si queréis algo más suave cerca de Thamel [1]
     2 noches en hotel de katmandú centrico - 56€
 
-[Himalayan Front Hotel by KGH Group](https://www.booking.com/Share-ehoobXh)
-![Himalayan Front Hotel by KGH Group](https://cf.bstatic.com/xdata/images/hotel/max1024x768/58897381.jpg?k=0ab8fa70185da1ede3b8a4705c470c13b6543773bf43271e59b261a1817cd083&o=)
-
 ## 📍Sábado 5 septiembre – Katmandú → Pokhara
 
     Avión 25min
@@ -111,6 +108,9 @@
     Templo Tal Barahi (si os apetece hacerlo en barca esta tarde) [4][5]
     Cena tranquila
     noche en Pokhara - 80€
+
+[Himalayan Front Hotel by KGH Group](https://www.booking.com/Share-ehoobXh)
+![Himalayan Front Hotel by KGH Group](https://cf.bstatic.com/xdata/images/hotel/max1024x768/58897381.jpg?k=0ab8fa70185da1ede3b8a4705c470c13b6543773bf43271e59b261a1817cd083&o=)
 
 [Hotel Airport Deepshree](https://www.booking.com/Share-eaIRVDb)
 ![Hotel Airport Deepshree](https://cf.bstatic.com/xdata/images/hotel/max1024x768/782384439.jpg?k=a976c67e7457123b41ff3b83a28d7a753c89aba8015f9d75c2f3ea1878bdbc75&o)
