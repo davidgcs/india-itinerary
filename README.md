@@ -112,9 +112,6 @@
 [Himalayan Front Hotel by KGH Group](https://www.booking.com/Share-ehoobXh)
 ![Himalayan Front Hotel by KGH Group](https://cf.bstatic.com/xdata/images/hotel/max1024x768/58897381.jpg?k=0ab8fa70185da1ede3b8a4705c470c13b6543773bf43271e59b261a1817cd083&o=)
 
-[Hotel Airport Deepshree](https://www.booking.com/Share-eaIRVDb)
-![Hotel Airport Deepshree](https://cf.bstatic.com/xdata/images/hotel/max1024x768/782384439.jpg?k=a976c67e7457123b41ff3b83a28d7a753c89aba8015f9d75c2f3ea1878bdbc75&o)
-
 ## 📍Domingo 6 septiembre – Pokhara (excursiones naturales) ->✈️  Katmandú
 
     Caminar + taxi corto
@@ -126,6 +123,9 @@
     Lakeside antes de ir al aeropuerto
     noche en hotel de aeropuerto - 18€
 👉 Día clave: tras el monzón suele haber cielos limpios
+
+[Hotel Airport Deepshree](https://www.booking.com/Share-eaIRVDb)
+![Hotel Airport Deepshree](https://cf.bstatic.com/xdata/images/hotel/max1024x768/782384439.jpg?k=a976c67e7457123b41ff3b83a28d7a753c89aba8015f9d75c2f3ea1878bdbc75&o)
 
 ## 📍✈️ Lunes 7 septiembre – Vuelo Pokhara → Delhi
 
